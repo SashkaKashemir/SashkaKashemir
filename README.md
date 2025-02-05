@@ -1,6 +1,6 @@
 - 👋 Hi, I’m SashkaKashemir
 - 👀 I’m interested in)|s
-- 🌱 I’m currently learning .bvfdtrufvyuibnjkl;
+- 🌱 I’m currently learning .gtjdfxghrtd;
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...)))pewk
 - 😄 Pronouns: ..asdc
