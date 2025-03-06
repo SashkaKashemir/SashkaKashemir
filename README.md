@@ -2,7 +2,7 @@
 - 👀 I’m interested in)|s
 - 🌱 I’m currently learning .uyghbjk
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...)))frdtfyuio
+- 📫 How to reach me ...)))ytjnrsygnhjetj
 - 😄 Pronouns: ..asdc
 - ⚡ Fun fact: .fv
 SashkaKashemir/SashkaKashemir is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
